@@ -11,4 +11,4 @@
 
 
 
-网站创作者：Chau（前主编），邮箱：stil_a_comman_name@outlook.com
+网站创建者：Chau（前主编），邮箱：stil_a_comman_name@outlook.com
