@@ -22,7 +22,8 @@
 
 
 
-网站创建者：Chau ~~（前主编）~~ ，邮箱：stil_a_comman_name@outlook.com
+网站创建者：Chau ~~（原主编）~~ ，邮箱：stil_a_comman_name@outlook.com
+N某~~（第2任主编）~~ 电话 13575729273
 
 ***
 
